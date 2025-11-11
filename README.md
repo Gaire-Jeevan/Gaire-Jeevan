@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=gaire-jeevan&label=Profile%20views&color=0e75b6&style=flat" alt="gaire-jeevan" /> </p>
 
-- 📫 How to reach me **gairejeevan7@gmail.com**
+- 📫 How to reach me ****
 
 - ⚡ Fun fact **I think I am funny😂**
 
